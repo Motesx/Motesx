@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Motesx
-- Students Informatica Tor Vergata
+- Student Informatica Tor Vergata
